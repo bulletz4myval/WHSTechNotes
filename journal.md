@@ -5,4 +5,4 @@ how can coding improve problem solving skills,it can maybe help something depend
 # october 21, 2024
 how ai works its just like robots just controlling it and ai matters and it really helps out alot and it can reslly change life and give you answers to what ever you need  in life and it can maybe improve a better future for people maybe.
 # october 28, 2024 
-the technology is really not gonna impact the elections cause i dont care aabout politicics or voting its not gonna change anything at all 
+the technology is really not gonna impact the elections cause i dont care aabout politicics or voting its not gonna change anything at all.
