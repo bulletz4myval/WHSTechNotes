@@ -10,4 +10,5 @@ the technology is really not gonna impact the elections cause i dont care aabout
 what im looking forward to doing this break is just playing the game and going to my friends house and just listen to music and do whatever i can do so it wont be boring
 # january 10th, 2025
 i really dont know what i enjoyed about this class nut its really peaceful and quiet in here just the work is easy to do i really dont know what i would like to work on this 2nd sememester ill maybe think about it later on when ever i have the chance i dont know what i would like to work on now .
-#  january 13th 2025
+# march 3rd, 2025
+technology can be a big impact on your life and it can make a better future for your life and yourself and make us smart and make a big connecttion in the world and make things better for people and kids you can make anything with technology and make money off of it too,and explore alot more with it too and just get better with it i would maybe try it too.
